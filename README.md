@@ -14,6 +14,6 @@ Im currently in alot of fandoms. If it's popular im probably in it. My favorites
 
 Yes I am a proshipper and anti-harass.
 
-DNI if you are an ANTI or pro-contact.
+DNI if you are an anti or pro-contact.
 
 If you are uncomfortable with this information feel free to block me, thank you.
